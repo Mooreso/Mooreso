@@ -1,4 +1,4 @@
-- 👋 Hi cheifs
+- 👋 Hi chief
 - welcome to crypsycrypto
 we help you sell and buy gift cards and all type of crypto currencies at good rate and swift payment
 
